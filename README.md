@@ -19,6 +19,7 @@ This first season ends with a big uncertainty. It became impossible to ignore th
 **Season 1 characters**
 
 
+
 Erwin Smith
 
 Hange Zoë
