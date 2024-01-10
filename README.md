@@ -1,6 +1,9 @@
 **KellySese.github.io**
 ![alt text](https://wallpapers.com/images/high/scouting-legion-attack-on-titan-logo-hpy8im9jbawkbwqa.webp)
+
+
 **Season 1 summary**
+
 The story of Attack on Titan develops in a world where humans are an endangered species. For more than a hundred years, they have lived in fear of the Titans, a mysterious and violent race of human-like giants that wander outside the walls and that look for people to devour. At this point, there is not any information about what these creatures are or where they came from. So in order to protect the few human populations from the attacks of Titans, three layers of sky-high stone walls were constructed around the cities. Life inside the walls is peaceful and quiet enough, but the protagonist of the series, Eren Jaeger, wants to live adventures and to feel the freedom afforded to the Survey Corps, special warriors that fight against the Titans beyond the walls.
 
 Eren Jaeger lives in Shiganshina, along with Armin Arlert, his best friend, and Mikasa Ackerman, his adopted sister that his family recently took in. Together, they live a relatively peaceful life until the day Titans burst into their city with the help of an enormous Titan that breaks the first wall of the city, Wall Maria. Among the violence and the confusion, Eren is the witness of how his mother is brutally eaten by a Titan during the attack. Full of anger and pain, the young boy swears revenge on the titans.
