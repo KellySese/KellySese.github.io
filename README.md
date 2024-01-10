@@ -15,3 +15,54 @@ At the very start of the battle, and in a desperate attempt to save the life of 
 Later in the story, the 104th Training Division members discover that Annie Leonhart, a young cadet of the team, can also turn into Titan and ended up trying to attack people using her power.
 
 This first season ends with a big uncertainty. It became impossible to ignore the fact that humans can transform into Titans and that there are infiltrators in the army that are against humans. The final shot of the season shows a part of the wall that is crumbling away and reveals the face of a Titan inside the wall.
+
+**Season 1 characters**
+
+
+Erwin Smith
+
+Hange Zoë
+
+Jean Kirstein
+
+Levi Ackerman
+
+Ymir
+
+Bertolt Hoover
+
+Connie Springer
+
+Eren Yeager
+
+Mikasa Ackerman
+
+Reiner Braun
+
+Sasha Blouse
+
+Armin Arlert
+
+Annie Leonhart
+
+Boris Feulner
+
+Falco Grice
+
+Floch Forster
+
+Gustav
+
+Hannes
+
+Yeager
+
+Ellie
+
+Finger
+
+Gabi Braun
+
+Gordon
+
+Grisha Jaeger
